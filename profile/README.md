@@ -2,6 +2,8 @@
 
 **Krunker.io** is an **epic first-person shooter (FPS)** game that delivers **fast-paced**, **action-packed** gameplay directly in your browser — no downloads required. With **Krunker Unblocked**, players can enjoy the full thrill of the game at school, work, or any restricted network.
 
+## <a href="https://1kb.link/TEphAb">👉 Click To Play Krunker.io Unblocked 👈</a>
+
 ### 🔫 What is Krunker.io?
 
 Krunker is a **hyper-speed multiplayer shooter** where players from around the world enter **pixelated combat arenas** to test their skills. Whether you're a **deadly sniper**, a **fearless run-and-gunner**, or a **shadowy trickster**, Krunker offers **diverse classes**, **weapons**, and **custom mods** for endless fun.
